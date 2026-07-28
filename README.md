@@ -49,4 +49,4 @@ Bulgarian (Native) · English (Professional)
 
 ## 📬 Let's Connect
 
-[Email](mailto:petar_vs@outlook.com) · [LinkedIn](https://linkedin.com/in/petarkostadinov) · [Portfolio](https://portfolio1-aya.pages.dev/)
+[Email](mailto:petar_vs@outlook.com) · [LinkedIn](https://www.linkedin.com/in/petar-kostadinov-759ba8213/) · [Portfolio](https://portfolio1-aya.pages.dev/)
